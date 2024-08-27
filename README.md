@@ -2,7 +2,7 @@
 Hallo semuanya selamat datang di catatan Github saya, maaf jika saya menggunakan Web platfrom git karena saya malas membayar pemeliharaan web 3$.
 
 # bandar intelejen
-pada umur 10 tahun 2017 kelas 5 SD saya sudah menjadi bandar intelejen yang menjalahi berbagai web dan memecahkan berbagai teka-teki di berbagai situs yang di share dari link ke link situ link
+pada umur 10 tahun 2017 kelas 5 SD saya sudah menjadi bandar intelejen yang menjalahi berbagai web dan memecahkan berbagai teka-teki di berbagai situs yang di share dari link ke link salah satunya link
 samawur contohnya, saya memecahkan berbagai tantangkan iklan sampai berhadapan langsung dengan malwere adwere yang tentunya sangat berbahaya namun itu semua tidak ada membuat
 takut bahkan gentar karena saya tidak paham apa-apa pada saat itu wkwkwkwk.
 singkat cerita saya menjadi bandar dari tahun 2017-2022 BANGSAT JUGA ANJING BISA-BISANYA ANAK SEKECIL ITU JADI BANDAR BAH BANGSAT
