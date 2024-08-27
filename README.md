@@ -12,7 +12,7 @@ DAMPAK NEGATIF YANG SAYA RASAKAN SAAT INI :
 2. Terkadang berbicara sendiri kek orang gila
 3. Gejala autis otak dan mulut gk sinkron saat berbicara
 
-Tapi syukurlah untuk saat ini saya sudah meninggalkan keburukan lama itu JANGAN TAPI BANYAK PANDERRR MUN PINA PAGAT ASLI KYA ORANG LALI
+Tapi syukurlah untuk saat ini saya sudah meninggalkan keburukan lama itu JANGAN TAPI BANYAK PANDERRR MUN PINA PAGAT ASLI KYA ORANG LALI,
 Untuk saat ini jika kalian bertemu seseorang yang asik dan klakukan yang kocak suka tersenyum suka bersantai di kantin atas warung bu Jannah di paling ujung 
 dengan memegang sebuah Laptop dan buku simulasi digital di tangan sebelah kanan JANGAN LUPA UNTUK MENYAPA ITU ADALAH SAYA :) 
 PANGGIL SAJA CUDET
